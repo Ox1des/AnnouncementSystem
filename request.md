@@ -1,1 +1,1 @@
-hi people
+bye people
