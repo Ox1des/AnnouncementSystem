@@ -1,1 +1,1 @@
-hi ryez i work on discord noe
+hi ryez
