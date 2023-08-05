@@ -1,1 +1,1 @@
-hi im working on bot 🙂
+hi ryez i work on discord noe
