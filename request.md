@@ -1,1 +1,1 @@
-sharko is skid
+sharko is a immigrant
