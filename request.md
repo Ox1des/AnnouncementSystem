@@ -1,1 +1,1 @@
-server shut down
+lol noob
